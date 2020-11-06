@@ -1,0 +1,2 @@
+There was once a monkey who lived in a nice,beautiful island.But he started to get tired of it.At the other side, there was a crocodile
+who had a wife ,who wanted to kill and eat the monkey.She asked the crocodile to do something about it and then the crocodile soon reached the place where the monkey was.
