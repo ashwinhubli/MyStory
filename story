@@ -1,2 +1,2 @@
 There was once a monkey who lived in a nice,beautiful island.But he started to get tired of it.At the other side, there was a crocodile
-who had a wife ,who wanted to kill and eat the monkey.She asked the crocodile to do something about it and then the crocodile soon reached the place where the monkey was.thecrocodile asked the monkey to come to his home and attend a feast that the crocodile is arranging.the monkey was 
+who had a wife ,who wanted to eat and kill the monkey.She asked the crocodile to do something about it and then the crocodile soon reached the place where the monkey was.the crocodile asked the monkey to come to his home and attend a feast that the crocodile is arranging.the monkey was 
